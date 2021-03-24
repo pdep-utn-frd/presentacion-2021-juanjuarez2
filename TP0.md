@@ -1,5 +1,5 @@
 
-## Juarez juan Martin
+## Juarez Juan Martin
 ###![Agrego mi foto personal](https://i.postimg.cc/025nhnLM/0001-1.jpg)
 ### Datos personales
 - Nombre: Juan Martin Juarez
